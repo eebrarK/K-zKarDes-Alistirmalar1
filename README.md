@@ -1,1 +1,0 @@
-# K-zKarDes-Alistirmalar1
